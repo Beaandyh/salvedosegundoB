@@ -9,7 +9,7 @@
 ## Alunos
 
 1. Ana Carol - Salve da Kerol!
-2. Nome - Seu Salve
+2. Ana Vitória - Salve da Ana
 3. Bia Brito - (ﾉ◕ヮ◕)ﾉ*:･ﾟ✧ Salveee 
 4. Nome - Seu Salve
 5. Lara - Oii
