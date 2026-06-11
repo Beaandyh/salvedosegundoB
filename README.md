@@ -31,7 +31,7 @@
 20. Matheus Vieira - Meu Salve
 21. Miguel - opa pessoal
 22. MURILO - Salve pessoal, estou pronto para aprender com vcs👍👍
-23. Nome - Seu Salve
+23. Nathy - "Você só tem uma vida, ent viva ela!"
 24. Nome - Seu Salve
 25. Nome - Seu Salve
 26. Ryan - Salve blzzzzzzz
