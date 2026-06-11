@@ -17,7 +17,7 @@
 7. Nome - Seu Salve
 8. Nome - Seu Salve
 9. Nome - Seu Salve
-10. Nome - Seu Salve
+10. Gustavo Vieira Dias - World Cup 🏆
 11. Nome - Seu Salve
 12. Nome - Seu Salve
 13. Nome - Seu Salve
