@@ -18,7 +18,7 @@
 7. Nome - Seu Salve
 8. Davi TM - Salve rapaziada e desculpas ao bruno e gersão.
 9. Terassi - Salve tropa
-10. Nome - Seu Salve
+10. Gustavo Vieira Dias - World Cup 🏆
 11. Helena Octaviano - Salve salaaaa 👍🏻
 12. Gustavo (TIRSU) - Boa, 👍✌️
 13. Nome - Seu Salve
